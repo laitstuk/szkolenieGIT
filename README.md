@@ -1,1 +1,10 @@
-Kucharczyk to najepszy pi³ka¿ Legii!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+ newfix
+Kucharczyk to najepszy piï¿½kaï¿½ Legii!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+zmiany
+
+rasiak,
+
+kucharczuk, 
+
+smolarek
+
