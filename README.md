@@ -1,1 +1,7 @@
-"# szkolenieGIT" 
+zmiany
+
+rasiak,
+
+kucharczuk, 
+
+smolarek
